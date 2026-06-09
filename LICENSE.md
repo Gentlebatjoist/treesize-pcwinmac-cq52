@@ -1,4 +1,4 @@
-# 
+# Atualizado TreeSize modelos para Mac OS | Nativo TreeSize modelos para PC Windows. Com modo jogo e sistema de notificacoes — otimizado para máximo desempenho em cada plataforma.
 
 
 
